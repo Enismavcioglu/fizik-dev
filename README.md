@@ -6,7 +6,20 @@ Enis Mavcıoğlu 9/D 42
  After putting this mixture we should close the dough and the meat must be covered. We should put mantı into hot water and boil it about fifteen minutes.
 
  For serving we will put boiled mantı on the plate and add white yoghurt, red pepper and melted butter on it. Now you can enjoy your food.
-100g/77kcal
+100g/77kcal  
+
+
+
+
 kendimin:21,47
+
+
+
+
+
 babam:24,44
+
+
+
+
 annem:21,08
